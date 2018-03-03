@@ -3,6 +3,7 @@ Here are the erfindergarden clothes hangers letters we have since last year.
 
 They look awesome but they are not very practical.
 
+ [Here](http://a360.co/2oLoTly) is the fusion link.
 
 ![](tag_hanger.png)
 
